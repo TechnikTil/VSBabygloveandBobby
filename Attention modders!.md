@@ -9,5 +9,5 @@ Hey guys! This is an mod i wanted to work on a long time ago! VS. Babyglove and 
 
 I need some help with the Sprites, background making and programming + songs and stuff (Yes im shaggy lol)
 
-If you wanna help on the mod just DM me on discord TechnikTil#6758
+If you wanna help on the mod just join the Discord server!
 
